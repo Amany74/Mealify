@@ -2,6 +2,7 @@
 
 
 https://github.com/Amany74/Mealify/assets/67116029/34011d69-6089-432d-8669-553e05bc55c6
+![image](https://github.com/Amany74/Mealify/assets/67116029/d1ddb5b8-c825-43f5-bbee-f87c788add1a)
 
 ![image](https://github.com/Amany74/Mealify/assets/67116029/97e144b5-a48b-4153-81ca-bdbc691a18e3)
 
